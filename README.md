@@ -1,1 +1,0 @@
-# teteko.github.io
